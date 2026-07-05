@@ -37,4 +37,4 @@
 - ✉️ [kontakt@bearbytes.pl](mailto:kontakt@bearbytes.pl)
 - 💼 [LinkedIn](https://linkedin.com/in/wojciech-krawczyk-a667651a3)
 
-<sub>Built with ❤️ and bear paws 🐾</sub>
+<sub>Built with ❤️ and bear hands 🐾</sub>
